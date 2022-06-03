@@ -1,2 +1,2 @@
-# Shifirlovchi Va Shifir Yechuvchi Bot Foydasi Tekkan Bulsa Hursadman
+# Shifirlovchi Va Shifir Yechuvchi Bot
 # Startslani Bosip Tashlaysiz Degan Umiddaman !!!.
